@@ -10,5 +10,4 @@ Eu tenho no total 9 bichinhos de estimasão 🐶 🐱 🐰 🐥
 
 E estudo no Colegio Estadual Idalia Rocha
 
-![Uploading image.png…]()
-
+![image](https://github.com/gilindinha/gilindinha/assets/142936750/769fc7ed-93fa-4285-a238-c4b6743368a5)
