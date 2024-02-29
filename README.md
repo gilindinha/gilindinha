@@ -6,7 +6,7 @@ Tenho 15 anos
 
 Gosto de musicas, filmes, series e jogos 🎬 🎧 🎮
 
-Eu tenho no total 9 bichinhos de estimasão 🐶 🐱 🐰 🐥
+Eu tenho no total 8 bichinhos de estimasão 🐶 🐱 🐰 🐥
 
 E estudo no Colegio Estadual Idalia Rocha
 
